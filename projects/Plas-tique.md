@@ -55,7 +55,7 @@ Last, but not least, names of the proud contributors please!
 | Bindiya Jinnappa | bgowda | @bindiyagowda | https://www.linkedin.com/in/bindiya-m-jinnappa-gowda-5108805/ | - |
 | Clem Capel-Bird | ClemCB | - | - | - |
 | Ash | astroash | - | - | - |
-| Nina Nduwayo | nn250 | - | - | - |
+| Nina Nduwayo | nn250 | @IamNinaNadia | https://www.linkedin.com/in/ninanadia/ | - |
 | Flora Harvey | FloraHarvey | - | - | - |
 | Nishtha Kalra | nishtha-kalra | - | -| - |
 | Chandreyi Saha | - | - | - |
